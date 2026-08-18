@@ -10,6 +10,8 @@
 就这样。以上便是这次作战的任务简报了。
 准备好吧，特工……开始清扫。
 
+【玩家可以在Roblox官网https:/www.roblox.com/games/135859680016034/0ne-Shot查看该项目，并通过下载Roblox软件体验该游戏。】
+
 <img width="1920" height="1080" alt="One Shot Roblox Game Cover" src="https://github.com/user-attachments/assets/e3f81cf6-c45d-49b0-80a2-c446ac02bed8" />
 
 <img width="1920" height="1080" alt="0ne shot（游戏场景）" src="https://github.com/user-attachments/assets/7fae1668-f362-4029-8a74-233489a883b0" />
