@@ -10,5 +10,6 @@
 就这样。以上便是这次作战的任务简报了。
 准备好吧，特工……开始清扫。
 
-<img width="820" height="480" alt="image" src="https://github.com/user-attachments/assets/e2646bb5-f5b7-4232-8927-3b0ee01ef9c2" />
-<img width="820" height="480" alt="image" src="https://github.com/user-attachments/assets/66953f28-5652-4715-96e3-2d395afd991e" />
+<img width="1920" height="1080" alt="One Shot Roblox Game Cover" src="https://github.com/user-attachments/assets/e3f81cf6-c45d-49b0-80a2-c446ac02bed8" />
+
+<img width="1920" height="1080" alt="0ne shot（游戏场景）" src="https://github.com/user-attachments/assets/7fae1668-f362-4029-8a74-233489a883b0" />
