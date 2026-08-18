@@ -9,5 +9,6 @@
 「希望这能让你尽兴。」
 就这样。以上便是这次作战的任务简报了。
 准备好吧，特工……开始清扫。
-<img width="410" height="238" alt="image" src="https://github.com/user-attachments/assets/e2646bb5-f5b7-4232-8927-3b0ee01ef9c2" />
-<img width="410" height="238" alt="image" src="https://github.com/user-attachments/assets/66953f28-5652-4715-96e3-2d395afd991e" />
+
+<img width="820" height="480" alt="image" src="https://github.com/user-attachments/assets/e2646bb5-f5b7-4232-8927-3b0ee01ef9c2" />
+<img width="820" height="480" alt="image" src="https://github.com/user-attachments/assets/66953f28-5652-4715-96e3-2d395afd991e" />
